@@ -1,4 +1,4 @@
-# 
+# exclusive dexscreener sniper bot | private-RPC-nodes + rug-pull-detection offers the most advanced dexscreener sniper bot, with private-RPC-nodes and rug-pull-detection. Ideal for
 
 
 
